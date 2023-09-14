@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ArtFr3ak
 - 👀 I’m interested in drawing, drawing something close to a anime artstyle.
 - 🌱 I’m currently learning to draw detailed works of art.
-- 💞️ I’m looking to collaborate on my girlfriend/partners works of art
+- 💞️ I’m looking to collaborate with friends on works of art
 - 📫 How to reach me: my gmail/email or any other platform i use besides this.
 
 <!--- i go by he/they/she :]
